@@ -37,7 +37,7 @@ Cry of fear*
 
 *Fave Music artists: Prince,MJ,David Bowie, Daft Punk,Gorillaz,Def Leppard
 ,Lil hero, The Cruel intentions,Lita Ford, Firehouse,Jamiroquai
-(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
+         (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
 
 
 
