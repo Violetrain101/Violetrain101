@@ -36,13 +36,13 @@ Cry of fear*
 
 
 *Fave Music artists: Prince,MJ,David Bowie, Daft Punk,Gorillaz,Def Leppard
-,Lil hero, The Cruel intentions,Lita Ford, Firehouse
+,Lil hero, The Cruel intentions,Lita Ford, Firehouse,Jamiroquai
 (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
 
 
 
 *Fave shows/anime/movies: One Piece, The Boys, X-MEN 97', Lisa Frankenstein, Peacemaker, Labyrinth
-,Fist of the North Star,She's the man*
+,Fist of the North Star, She's the man*
 
 
 
