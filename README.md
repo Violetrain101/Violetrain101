@@ -45,6 +45,14 @@ Cry of fear*
 ,Fist of the North Star, She's the man*
 
 
+*Celebrity Crushes : Channing Tatum, James Mcavoy, Hugh Jackman*
+
+
+
+
+![ShesTheManPhoneGIF](https://github.com/user-attachments/assets/0cc0603b-154e-433a-a894-aed8b5d01659)
+
+
 
 
 *I like watching WWE!*
