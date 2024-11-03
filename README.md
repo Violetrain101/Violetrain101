@@ -42,8 +42,8 @@ Cry of fear*
 
 
 *Fave shows/anime/movies: One Piece, The Boys, X-MEN 97', Lisa Frankenstein, Peacemaker, Labyrinth
-,Fist of the North Star, She's the man*
-
+,Fist of the North Star, She's the man, Van Helsing*
+ 
 
 *Celebrity Crushes : Channing Tatum, James Mcavoy, Hugh Jackman*
 
