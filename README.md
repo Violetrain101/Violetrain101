@@ -25,27 +25,31 @@ Intro :
 Media interests:
 -----------
 
-*Fave Games: RE,DMC,SH,MK,
-Yakuza,MGS,Bayonetta,ACNH,Twisted Metal,
-Lollipop Chainsaw,Obscure,
-Cry of fear*
-
-
-![NoddingGIF](https://github.com/user-attachments/assets/99726845-50d5-4643-8361-50a4f92bcb9d)
-
-
-
-*Fave Music artists: Prince,MJ,David Bowie, Daft Punk,Gorillaz,Def Leppard
-,Lil hero, The Cruel intentions,Lita Ford, Firehouse,Jamiroquai
-         (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
+*Fave Games: RE,DMC,Silent Hill,Mortal Kombat,
+Yakuza,MGS,Bayonetta,Baldurs Gate 3,
+Twisted Metal,Dance Central, 
+Lollipop Chainsaw,Obscure, FNAF, Amanda the Adventurer
+, Date Everything,Cry of fear, ACNH*
 
 
 
-*Fave shows/anime/movies: One Piece, The Boys, X-MEN 97', Lisa Frankenstein, Peacemaker, Labyrinth
-,Fist of the North Star, She's the man, Van Helsing*
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/da85bbdf-cfe9-42b4-90a7-5739ad7ebe80" />
+
+
+
+----------------------------------------------------------
+
+*Fave Music artists: Prince,MJ,David Bowie,Type O Negative, Fleetwood Mac, Daft Punk,Gorillaz,Pink Floyd, W.A.S.P,Malice Mizer, Def Leppard, Stevie Nicks, RATT,
+,Insane Clown Posse, Lil hero, The Cruel intentions,Lita Ford, Firehouse, Spandua Ballet, Rainbow,Sunday, Jamiroquai, Cinderella , The Cranberries, Van Halen, Steel Panther, Journey*
+(ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
+
+
+
+*Fave shows/anime/movies: Alice in Borderland, One Piece, The Boys, X-MEN 97', Lisa Frankenstein, Peacemaker, Labyrinth, Rocky Horror Picture Show, Chainsaw Man,
+,Fist of the North Star, She's the man,The Crow, Kill Bill, Van Helsing, Stranger Things, American Horror Story,Squid Game, JJBA, Now You See Me*
  
 
-*Celebrity Crushes : Channing Tatum, James Mcavoy, Hugh Jackman*
+*Celebrity Crushes : Channing Tatum, James Mcavoy, Hugh Jackman, Tomohisa Yamashita*
 
 
 
@@ -74,10 +78,20 @@ Cry of fear*
 
 
 
+----------------------------------------------
+
+
+*I love Crows  (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧*
+
+
+
+![CrowRavenGIF](https://github.com/user-attachments/assets/5a9d06d2-c074-4bf4-a893-5cc7c97fbcd1)
 
 
 
 
+
+----------------------------------------------------------
 
 
 Fandoms DNI:
@@ -111,8 +125,6 @@ Socials:
 (Twitch: Violet_rain_beloved)
 
 ----------------------------------------------
-
-ICHIBAN KASUGA SOLOS!!!!
 
 MOTHER X SUPREMACY!
 
