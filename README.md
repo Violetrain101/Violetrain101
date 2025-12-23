@@ -107,6 +107,8 @@ Jujutsu Kaisen (depends, just dont be weird to me)
 
 Dream SMP
 
+Trump supporters 
+
 Boyfriend to death
 
 Melanie Martinez
