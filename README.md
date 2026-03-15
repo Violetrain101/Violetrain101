@@ -40,13 +40,13 @@ Lollipop Chainsaw,Obscure, FNAF, Amanda the Adventurer
 ----------------------------------------------------------
 
 *Fave Music artists: Prince,MJ,David Bowie,Type O Negative, Fleetwood Mac, Daft Punk,Gorillaz,Pink Floyd, W.A.S.P,Malice Mizer, Def Leppard, Stevie Nicks, RATT,
-,Insane Clown Posse, Lil hero, The Cruel intentions,Lita Ford, Firehouse, Spandua Ballet, Rainbow,Sunday, Jamiroquai, Cinderella , The Cranberries, Van Halen, Steel Panther, Journey*
+,Insane Clown Posse, Lil hero, The Cruel intentions,Lita Ford, Firehouse, Spandua Ballet, Rainbow,Sunday, Jamiroquai, Cinderella , The Cranberries, Van Halen, Steel Panther, Journey, Blue Oyster Cult*
 (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧💖
 
 
 
 *Fave shows/anime/movies: Alice in Borderland, One Piece, The Boys, X-MEN 97', Lisa Frankenstein, Peacemaker, Labyrinth, Rocky Horror Picture Show, Chainsaw Man,
-,Fist of the North Star, She's the man,The Crow, Kill Bill, Van Helsing, Stranger Things, American Horror Story,Squid Game, JJBA, Now You See Me*
+,Fist of the North Star, She's the man,The Crow, Kill Bill, Van Helsing, Stranger Things, American Horror Story,Squid Game, JJBA, Now You See Me, Adventure time*
  
 
 *Celebrity Crushes : Channing Tatum, James Mcavoy, Hugh Jackman, Tomohisa Yamashita*
